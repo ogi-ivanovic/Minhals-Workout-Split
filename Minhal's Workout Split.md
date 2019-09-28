@@ -20,7 +20,7 @@
 - [**Seated row machine**](<https://www.youtube.com/watch?v=lNUztYbC0G0>) - 3 sets of 8 reps 
   - Bring your elbows all the way back
   - Try and squeeze your shoulder blades together when you pull the bar towards you
-  - Don't shrug your shoulder, keep them down and relaxed, you want you back to do all the work and not your traps
+  - Don't shrug your shoulder, keep them down and relaxed, you want your back to do all the work and not your traps
 - [**Barbell bicep curls**](<https://www.youtube.com/watch?v=QZEqB6wUPxQ>) - 3 sets of 8-12 reps
   - Go slow on the way down
 - [**Hammer curls**](<https://www.youtube.com/watch?v=zC3nLlEvin4>) - 2 sets of 8 reps
